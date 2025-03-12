@@ -35,7 +35,7 @@ By using the **BetFury promo code ROCKET**, you unlock a variety of exclusive re
 - **Cashback & Rakeback Bonuses**: Earn up to **60% rakeback** and additional **weekly/monthly cashback** on your net losses.
 - **Access to VIP & Exclusive Promotions**: Unlock better cashback rates, personalized bonuses, and priority withdrawals.
 
-This promo code provides a **huge advantage** to new players looking to maximize their gaming experience at BetFury!
+This [promo code](https://github.com/pocket-option-code/pocketoption-promo) provides a **huge advantage** to new players looking to maximize their gaming experience at BetFury!
 
 ---
 
